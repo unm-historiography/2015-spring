@@ -17,7 +17,7 @@ Particularly with the bias, a major component of our work is completely dependen
 memoirs, pictures, accounts, or their research. All of these pieces of evidence of history are a human product, and are thus open
 to human error or bias. Just as Carr discussed, it is impossible to avoid the influences of the social context surrounding the 
 production of so much of the evidence we have come to build the foundations of our knowledge of history upon. As such, I find my-
-self asking, if this is the case, how can we reliably say we are legitamately understanding history? 
+self asking, if this is the case, how can we reliably say we are legitimately understanding history? 
 
 Additionally, Carr discusses the limits upon our ability to truly delve into the historial record and obtain the historical truth. 
 I agree with Carr. In class, I said we have only scratched maybe 10% of the truth, and Carr offered some support to that claim. 
