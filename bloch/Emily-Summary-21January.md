@@ -1,11 +1,11 @@
 DEDICATION 
-- French author, writing during the outset of the second world war (mentions that he is writing merely from memory with none of his materials)
+French author, writing during the outset of the second world war (mentions that he is writing merely from memory with none of his materials)
 
 INTRODUCTION (P 3)
-- Begins by pointing out that western culture has had a longstanding interest in its past, mainly because it is a culture deeply tied to Christianity, which in itself is a religion of history (P 4)
-- Mere interest and curiosity cannot explain this tradition of history, so therefore it must serve some purpose or use, but what might this be? (p 7)
-- History is seen as a guiding force, but when it fails to do so, we become resentful (p 11)
-- Bloch’s goal: explain how and why a historian practices his trade (p 12)
+Begins by pointing out that western culture has had a longstanding interest in its past, mainly because it is a culture deeply tied to Christianity, which in itself is a religion of history (P 4)
+Mere interest and curiosity cannot explain this tradition of history, so therefore it must serve some purpose or use, but what might this be? (p 7)
+History is seen as a guiding force, but when it fails to do so, we become resentful (p 11)
+Bloch’s goal: explain how and why a historian practices his trade (p 12)
 
 CHAPTER I -  HISTORY, MEN, AND TIME (p 20)
 1. THE CHOICE OF THE HISTORIAN (p 20)
