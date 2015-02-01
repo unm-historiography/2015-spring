@@ -1,14 +1,14 @@
 DEDICATION 
-French author, writing during the outset of the second world war (mentions that he is writing merely from memory with none of his materials)
+French author, writing during the outset of the second world war (mentions that he is writing merely from memory with none of his materials).
 
-INTRODUCTION (P 3)
-Begins by pointing out that western culture has had a longstanding interest in its past, mainly because it is a culture deeply tied to Christianity, which in itself is a religion of history (P 4)
-Mere interest and curiosity cannot explain this tradition of history, so therefore it must serve some purpose or use, but what might this be? (p 7)
-History is seen as a guiding force, but when it fails to do so, we become resentful (p 11)
-Bloch’s goal: explain how and why a historian practices his trade (p 12)
+INTRODUCTION (P 3).
+Begins by pointing out that western culture has had a longstanding interest in its past, mainly because it is a culture deeply tied to Christianity, which in itself is a religion of history (P 4).
+Mere interest and curiosity cannot explain this tradition of history, so therefore it must serve some purpose or use, but what might this be? (p 7).
+History is seen as a guiding force, but when it fails to do so, we become resentful (p 11).
+Bloch’s goal: explain how and why a historian practices his trade (p 12).
 
-CHAPTER I -  HISTORY, MEN, AND TIME (p 20)
-1. THE CHOICE OF THE HISTORIAN (p 20)
+CHAPTER I -  HISTORY, MEN, AND TIME (p 20).
+THE CHOICE OF THE HISTORIAN (p 20).
 2. HISTORY AND MEN (p 22)
 - Two opposing schools to historical thought: 1) history as a science of human evolution; 2) aimless knowledge not intended to shed light on the present, or illuminate the future 
 - History defined as change taking place in time (p 23)
