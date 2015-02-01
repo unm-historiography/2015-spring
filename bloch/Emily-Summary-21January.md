@@ -9,12 +9,12 @@ Bloch’s goal: explain how and why a historian practices his trade (p 12).
 
 CHAPTER I -  HISTORY, MEN, AND TIME (p 20).
 THE CHOICE OF THE HISTORIAN (p 20).
-2. HISTORY AND MEN (p 22)
-- Two opposing schools to historical thought: 1) history as a science of human evolution; 2) aimless knowledge not intended to shed light on the present, or illuminate the future 
-- History defined as change taking place in time (p 23)
-- At any moment in time, there are multiple influences converging into one point of time and space. History can be distinguished as the introduction of the human element (p 25)
-- One major difficulty in history is adequately expressing fragile topics that in many instances, we might not even posses the adequate vocabulary to do so (p 27)
-3. HISTORICAL TIME (p 27)
+HISTORY AND MEN (p 22)
+Two opposing schools to historical thought: 1) history as a science of human evolution; 2) aimless knowledge not intended to shed light on the present, or illuminate the future. 
+History defined as change taking place in time (p 23).
+At any moment in time, there are multiple influences converging into one point of time and space. History can be distinguished as the introduction of the human element (p 25).
+One major difficulty in history is adequately expressing fragile topics that in many instances, we might not even posses the adequate vocabulary to do so (p 27).
+HISTORICAL TIME (p 27)
 - To understand history is to understand that reality is a state subject to the unstoppable and ever moving force of time (p 27)
 4. THE IDOL OF ORIGINS 
 - Historians can all to easily use the past as a means to justify the present, and not as a genuine search for truth (p 31)
