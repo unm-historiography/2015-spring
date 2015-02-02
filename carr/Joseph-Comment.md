@@ -2,7 +2,7 @@ But seemingly, as he continues to draw parallels, it's almost as if he relegates
 
 He does go on to recant his suggestion, or at least one he quoted, that history has the potential to be precise and therefore the potential to be the "mathematics of human behavior," when he points out that science is not predicated upon preciseness but rather "enunciating hypothesis."
 
-Carr then brings Geography into the fold. And while this is neither stated in the book nor even implied by Carr, it starts to feel as though history is not a unique study in its own, but rather a fusion of many other studies (e.g. anthropology, geography, philosophy, etc) - or at least, perhaps more so than other fields, one that can be defined as such. 
+Carr then brings Geography into the fold. And while this is neither stated in the book nor even implied by Carr, it starts to feel as though history is not a unique study in its own, but rather a fusion of many other studies (e.g. anthropology, geography, philosophy, etc) - or at least, perhaps more so than other fields, one that can be defined as such.
 
 In either event, Carr illustrates how historians have moved away from the dated ideology that history, at its best, could essentially provide a cultural cure all. And more towards a realistic notion that history and histoirans, in a scientific method, just focus on putting together what we can - *este es este.* 
 
@@ -12,7 +12,7 @@ In order to crystallize what exactly history is, Carr dismisses quixotic definit
 
 Some of his comparisons I found themselves to be reaching, however, and were like saying because a bird and a plane both have wings and both fly in the sky, that therefore they are inherently similar, or of a same category. 
 
-Nonetheless, Carr backs away from the strength of some of these analogy, warning that they can be dangerous. He then plots out 5 objections to the argument that there is a categorical bifurcation between history and the sciences. 
+Carr back tracks, nonetheless, away from some of these reaching analogies, warning that they can be dangerous. He then plots out 5 objections to the argument that there is a categorical bifurcation between history and the sciences. 
 
 His points are outlined on page 78: He aims to tackles the duty of the historian, how histories shape the present, what history can/can't predict, objectivity, and moral dilemmas. These points are made in the context of sciences, and through a comparative analysis his main point is that there are similarities. Plus, these similarities withstanding, the field of history should pivot away from the literary intellectual and more to the scientist. 
 
