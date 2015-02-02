@@ -22,17 +22,11 @@ Carr goes on to showcase bias. He does this through his writing, but also shows 
 
 - 
 
-Moving on. Carr points to the relationship between the past and the present, invoking in my mind the famous Faulkner quote, "the past isn't dead, it's not even the past." Also reminding me of Bloch, or even Mark Twain's "history doesn't repeat itself but it rhymes." Perhaps Fitzgerald's "borne ceaselessly into the past like boats against the current." This is a point he will revisit later and make it really work. 
+Moving on. Carr points to the relationship between the past and the present, invoking in my mind the famous Faulkner quote, "the past isn't dead, it's not even the past." Also reminding me of Bloch, or even Mark Twain's "history doesn't repeat itself but it rhymes." Perhaps Fitzgerald's "borne ceaselessly into the past like boats against the current." After establishing the relationship between the history and the past, Carr revisits this point and really makes it work.
 
-Carr goes on to his third point and it comes off as a straw-man. He says that "some people" say history is useless because it can't predict the future. People probably have said this, but they are not cited nor is their argument properly introduced. 
+The crux of it is how history rhymes. Russians, after their revolution, looked back to what happened with the French rev and Napoleon, so they opted against Trotsky who seemed to them Napoleonic, in favor of Stalin. History's effects on the present are interesting and Carr brings up intriguing concept: the ebb and flow of the present is constantly shaped by our perceptions of the past. Moreover, history contributes to the crystallization of predictions. This is the strongest of his points IMO. 
 
-The gist of his third point is that what scientists and historians are trying to figure out (predictive wise) are "not fundamentally dissimilar." 
-
-Okay. In hindsight some of his points work more than they do on first glance. 
-
-His 4th point is his strongest, IMO. 
-
-The crux of it is how history rhymes. Russians, after their revolution, looked back to what happened with the French rev and Napoleon, so they opted against Trotsky who seemed to them Napoleonic, in favor of Stalin. History's effects on the present are interesting and Carr brings up intriguing concept: the ebb and flow of the present is constantly shaped by our perceptions of the past. Moreover, history contributes to the crystallization of predictions. 
+Whereas the gist of his third point is that what scientists and historians are trying to figure out (predictive wise) are "not fundamentally dissimilar." The gist of this one is that we try to shape the future based on the past, ironically,Carr fails to mention the futility of this endevour. 
 
 In his last objection, I thought the analogy of the deck of the cards to be apt. But Carr's proposition that the historian refrain from moral judgements, even if it means not pointing out that say - that Bill Cosby raped 40 women - to be whitewashing. In my Cosby analogy, that is a important part about his personal life that shouldn't be glossed over. For Carr, it is not my place (if I was a historian) to make judgements that this is morally wrong. What If I'm chronicling the history of rape and celebrity? or of bill Cosby himself? what judgement am I allowed to make, beside the ambiguous term of "value judgement." 
 
