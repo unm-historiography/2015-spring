@@ -32,4 +32,6 @@ In his last objection, I thought the analogy of the deck of the cards to be apt.
 
 The question then arises of the lesser evil for the greater good. And that these are abstract terms not for the historian to define. 
 
+- 
+
 In essence: **make history more like science.** The chapter's progression starts off weak but through thorough inquiry proves insightful.  
