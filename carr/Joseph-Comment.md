@@ -4,7 +4,7 @@ Anyway, he does recant his suggestion that history has the potential to be preci
 
 Carr then brings Geography into the fold. And while this is neither stated in the book nor even implied by car, it starts to feel as though history is not a unique study in its own, but rather a fusion of many other studies (e.g. anthropology, geography, philosophy, etc) - or at least, perhaps more so than other fields, one that can be defined as such. 
 
-In either event, Carr illustrates how historians have moved away from the dated ideology that history, at its best, could become some comprehensive text that would settle the worlds problems. Away form this overly idealistic ambition to a more humble one that involves focusing on specific issues, in a scientific method, form one to the next - este es este. 
+In either event, Carr illustrates how historians have moved away from the dated ideology that history, at its best, could become some comprehensive text that would settle the worlds problems. Away form this overly idealistic ambition to a more humble one that involves focusing on specific issues, in a scientific method, form one to the next - *este es este.* 
 
 - 
 
@@ -24,8 +24,6 @@ Carr goes on to showcase bias. He does this through his writing, but also shows 
 
 Moving on. Carr points to the relationship between the past and the present, invoking in my mind the famous Faulkner quote, "the past isn't dead, it's not even the past." Also reminding me of Bloch, or even Mark Twain's "history doesn't repeat itself but it rhymes." Perhaps Fitzgerald's "borne ceaselessly into the past like boats against the current." This is a point he will revisit later and make it really work. 
 
-Anyway. 
-
 Carr goes on to his third point and it comes off as a straw-man. He says that "some people" say history is useless because it can't predict the future. People probably have said this, but they are not cited nor is their argument properly introduced. 
 
 The gist of his third point is that what scientists and historians are trying to figure out (predictive wise) are "not fundamentally dissimilar." 
@@ -40,4 +38,4 @@ In his last objection, I thought the analogy of the deck of the cards to be apt.
 
 The question then arises of the lesser evil for the greater good. And that these are abstract terms not for the historian to define. 
 
-In essence: make history more like science. The chapter's progression starts off weak but through thorough inquiry proves insightful.  
+In essence: **make history more like science.** The chapter's progression starts off weak but through thorough inquiry proves insightful.  
