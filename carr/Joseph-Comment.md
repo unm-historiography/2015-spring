@@ -20,7 +20,7 @@ His points for this chapter are outlined on page 78: He aims to tackles the duty
 
 History takes due diligence. We are all generalizers, inherently. And sociology has structural problems that inhibit its progress as a social science. These are all my takeaways from his first point. Carr is all over the place, but as his points progress his thematic concerns become more precise.  
 
-Carr goes on to showcase bias. He does this through his writing, but also shows us through how he thinks. In his footnote on page 83, where he attacks a western idea - that freedom of thought fosters science - and argues that this is notion is very invalid because his (Carr's) beloved soviet union disproved that. The footnote implies Russia disproves this because they advanced scientifically while quelling political dissent? The author of the "free speech" quote didn't say free speech exclusively fostered scientific advancement. Whether or not his point is a sociological law, Carr continues to work against himself in small places like this. 
+Carr goes on to showcase bias. He does this through his writing, but also shows us through how he thinks. In his footnote on page 83, where he attacks a western idea - that freedom of thought fosters science - and argues that this is notion is very invalid because his (Carr's) beloved soviet union disproved that. The footnote implies Russia disproves this because they advanced scientifically while quelling political dissent? The author of the "free speech" quote didn't say free speech exclusively fostered scientific advancement. Whether or not the "free speech" point is a sociological law, Carr continues to work against himself in small places like this. 
 
 - 
 
