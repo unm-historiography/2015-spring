@@ -32,7 +32,7 @@ Whereas the gist of his third point is that what scientists and historians are t
 
 In his last objection, I thought the analogy of the deck of the cards to be apt. But Carr's proposition that the historian refrain from moral judgements, even if it means not pointing out that say - that Bill Cosby raped 40 women - to be whitewashing. In my Cosby analogy, that is a important part about his personal life that shouldn't be glossed over. For Carr, it is not my place (if I was a historian) to make judgements that this is morally wrong. What If I'm chronicling the history of rape and celebrity? or of bill Cosby himself? what judgement am I allowed to make, beside the ambiguous term of "value judgement." 
 
-The question then arises of the lesser evil for the greater good. And that these are abstract terms not for the historian to define. 
+The question then arises of the lesser evil for the greater good. And that these are abstract terms not for the historian to define. Historian or not, causing harm to others, whether only in personal life or not, is not merely something that trasncends the temporal realm of the historian. 
 
 - 
 
