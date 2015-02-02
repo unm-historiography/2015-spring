@@ -16,7 +16,7 @@ This comparitive analysis works. Some of his comparisons I found to be reaching,
 
 Carr back tracks, nonetheless, away from some of these reaching analogies, warning that they can be dangerous. He then plots out 5 objections to the argument that there is a categorical bifurcation between history and the sciences. 
 
-His points for this chapter are outlined on page 78: He aims to tackles the duty of the historian, how histories shape the present, what history can/can't predict, objectivity, and moral dilemmas presented therein. These points are made in the context of sciences, and through a comparative analysis his main point is that there are similarities. Plus, these similarities withstanding, the field of history should pivot away from the literary intellectual and more to the scientist. 
+His points for this chapter are outlined on page 78: He aims to tackle what is the duty of the historian, how histories shape the present, what history can/can't predict, objectivity, and moral dilemmas presented therein. These points are made in the context of sciences, and through a comparative analysis his main point is that there are similarities. Plus, these similarities withstanding, the field of history should pivot away from the literary intellectual and more to the scientist. 
 
 History takes due diligence. We are all generalizers, inherently. And sociology has structural problems that inhibit its progress as a social science. These are all my takeaways from his first point. Carr is all over the place, but as his points progress his thematic concerns become more precise.  
 
