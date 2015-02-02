@@ -8,9 +8,9 @@ In either event, Carr illustrates how historians have moved away from the dated 
 
 - 
 
-In order to crystallize what exactly history is, Carr dismisses quixotic definitions advanced by historians before him and he attempts to define the domain of other fields of study - perhaps so that through the process of elimination the borders of the history puzzle piece will be discovered.  
+In order to crystallize what exactly history is, Carr dismisses quixotic definitions advanced by historians before him and he attempts to define the domain of other fields of study - perhaps so that through the process of elimination the borders of the history puzzle piece will be discovered, or at least made more distinct.  
 
-Some of his comparisons I found like saying because a bird and a plane both have wings and both fly in the sky, that therefore they are inherently similar, or of a same category. 
+Some of his comparisons I found themselves to be reaching, however, and were like saying because a bird and a plane both have wings and both fly in the sky, that therefore they are inherently similar, or of a same category. 
 
 Nonetheless, Carr backs away from the strength of some of these analogy, warning that they can be dangerous. He then plots out 5 objections to the argument that there is a categorical bifurcation between history and the sciences. 
 
