@@ -6,7 +6,7 @@ He does go on to recant his suggestion, or at least one he quoted, that history 
 
 Carr then brings Geography into the fold. And while this is neither stated in the book nor even implied by Carr, it starts to feel as though history is not a unique study in its own, but rather a fusion of many other studies (e.g. anthropology, geography, philosophy, etc) - or at least, perhaps more so than other fields, one that can be defined as such.
 
-In either event, Carr illustrates how historians have moved away from the dated ideology that history, at its best, could essentially provide a cultural cure all. And more towards a realistic notion that history and histoirans, in a scientific method, just focus on putting together what we can - *este es este.* 
+In either event, Carr illustrates how historians have moved away from the dated ideology that history, at its best, could essentially provide a cultural cure all. And more towards a realistic notion that history has pivoted towards a scientific method that's focus is pragmatic and specific - *este es este.* 
 
 - 
 
