@@ -1,0 +1,7 @@
+Evans stated in Chapter Six that "Just because we all have a different idea of what history is, or should be about, does not mean that we no longer read one another's work. But there is no denying that this has become more difficult, for over the last thirty years in history there has been an almost exponential increase in the total volume of historical knowledge..." (153). Will the discipline of history get to the point that too much information is counterproductive?
+
+Carr wrote "My purpose is merely to show how closely the work of the historian mirrors the society in which he works. It is not merely the events that are in flux. The historian himself is in flux" (51). Evans states in Chapter Seven that "the main purpose of all historical writing and research is to gain power for historians or for those they represent in the present" (169). Can historians ever dismiss the present when writing about the past? Is there anything to gain by the historian in using the present as context?
+
+Does post-modernism influence the disipline of history in a positive way? 
+
+Evans wrote that "There can be no definitive history anymore" (151). He also cited Carr referring to historical knowledge as an "ocean of facts." This prompts the question for many students of history, what is history and why should we study it? IF it can't really be defined by the practitioners, how can students put it to good use?
