@@ -19,10 +19,9 @@ But essentially I think I sort of caught on to the spirit of the article.
   
 3. In addition, **Political science** and **sociology** are two of the analytical len's used to examine the internal and external relationship's in all three: grid location, where people conduct their lives, and their affective attachment to place.  
 
-4. Digression: All of these studies clearly overlap and it's difficult to distinctly differentiate them into categorical bifurcations (excuse my inner Withers here). They overlap to the extent that the humanities should emerge as one singular study. That way you get a little bit of everything (all of the social sciences at least), that try to examine our past - essentially what history already is IMO. Maybe a student could matriculate into a general Humanities study with an emphasis on, say, sociology - and classes from each program (political science, history, etc) would fall under the general humanities degree. And a class/seminar like this one would be a pre-req to upper division courses in the program.
-
-  - But perhap's conflating these fails to consider some other aspects I won't go into. Side note: One thing I know for sure is that it's ironic that this class is my last history class but would easily been more useful as my first upper division one.  
-  - Each study bring's something of its own to the table when looking at our past. Each of them are also dependent on eachother. Interesting and dynamic relationship for sure. 
+4. Digression: All of these studies clearly overlap and it's difficult to distinctly differentiate them into categorical bifurcations (excuse my inner Withers here). They overlap to the extent that the humanities should emerge as one singular study. That way you get a little bit of everything (all of the social sciences at least), that try to examine our past - essentially what history already is IMO. 
+5. 
+6. Like, a student could study the humanities but have an emphasis on say, sociology, or something. Each study brings something of its own to the table, and all of the same classes would still be offered, but this way the student could study an array of upper division courses that all have the similar goal: to examine our past, our present, and what makes us us. Regardless, the relationship between these studies is dynamic and co-dependent. I think this class has taught me that and would have been more valuable at the beginning of my undergrad in history rather than at the end. 
   
   
 ### More generally, I think the gist of Wither is two fold.
