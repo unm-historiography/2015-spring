@@ -22,6 +22,7 @@ But essentially I think I sort of caught on to the spirit of the article.
 4. Digression: All of these studies clearly overlap and it's difficult to distinctly differentiate them into categorical bifurcations (excuse my inner Withers here). They overlap to the extent that the humanities should emerge as one singular study. That way you get a little bit of everything (all of the social sciences at least), that try to examine our past - essentially what history already is IMO. Maybe a student could matriculate into a general Humanities study with an emphasis on, say, sociology - and classes from each program (political science, history, etc) would fall under the general humanities degree. And a class/seminar like this one would be a pre-req to upper division courses in the program.
 
   - But perhap's conflating these fails to consider some other aspects I won't go into. Side note: One thing I know for sure is that it's ironic that this class is my last history class but would easily been more useful as my first upper division one.  
+  - Each study bring's something of its own to the table when looking at our past. Each of them are also dependent on eachother. Interesting and dynamic relationship for sure. 
   
   
 ### More generally, I think the gist of Wither is two fold.
