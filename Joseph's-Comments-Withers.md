@@ -1,4 +1,4 @@
-The crux of this article though is perhaps just get us into *"Thinking Geographically."* 
+The crux of this article though is perhaps just to get us into *"Thinking Geographically."* 
 
 There were a few things that struck me as interesting but weren't really developed as much as I would have liked. Such as locale as a social construct, the effects of globilisation on place. I'm not an expert on the enlightenment so some of his historical examples came off as under developed and poorly articulated to the common reader like myself. 
 
