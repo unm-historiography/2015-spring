@@ -20,8 +20,8 @@ But essentially I think I sort of caught on to the spirit of the article.
 3. In addition, **Political science** and **sociology** are two of the analytical len's used to examine the internal and external relationship's in all three: grid location, where people conduct their lives, and their affective attachment to place.  
 
 4. Digression: All of these studies clearly overlap and it's difficult to distinctly differentiate them into categorical bifurcations (excuse my inner Withers here). They overlap to the extent that the humanities should emerge as one singular study. That way you get a little bit of everything (all of the social sciences at least), that try to examine our past - essentially what history already is IMO. 
-5. 
-6. Like, a student could study the humanities but have an emphasis on say, sociology, or something. Each study brings something of its own to the table, and all of the same classes would still be offered, but this way the student could study an array of upper division courses that all have the similar goal: to examine our past, our present, and what makes us us. Regardless, the relationship between these studies is dynamic and co-dependent. I think this class has taught me that and would have been more valuable at the beginning of my undergrad in history rather than at the end. 
+
+  - Like, a student could study the humanities but have an emphasis on say, sociology, or something. Each study brings something of its own to the table, and all of the same classes would still be offered, but this way the student could study an array of upper division courses that all have the similar goal: to examine our past, our present, and what makes us us. Regardless, the relationship between these studies is dynamic and co-dependent. I think this class has taught me that and would have been more valuable at the beginning of my undergrad in history rather than at the end. 
   
   
 ### More generally, I think the gist of Wither is two fold.
