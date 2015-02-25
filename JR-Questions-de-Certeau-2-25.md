@@ -5,7 +5,7 @@
 <h4>Now, seriously:</h4>
 <ul>
 <li> Are legends history or poetry?</li>
-<li>Do legends aid or inhibit historical truth</li>
+<li>Do legends aid or inhibit historical truth?</li>
 <li>Are place and space more than artifacts, or are they the same?</li>
 <li>What about visuals like maps, art, photographs, etc.? Are they more than artifacts?</li>
 <ul>
