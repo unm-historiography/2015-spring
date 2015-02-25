@@ -1,4 +1,4 @@
-What kind of role does de Certeau think that place lays on human life and interactions?
+What kind of role does de Certeau think that place plays on human life and interactions?
 
 The title of this piece is called "The Practice of Everyday Life." Does de Certeau do a good job of describing the everyday life of people?
 
