@@ -1,5 +1,5 @@
-<p><b>Withers summary</p>
-<p>Part 1 and 2</b></p>
+<p><b>Withers summary</p></b>
+<b><p>Part 1 and 2</b></p>
 <ul>
 <li>Discussion over the importance of space</li>
 <li>Space: The physical location</li>
