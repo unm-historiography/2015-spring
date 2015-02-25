@@ -19,7 +19,7 @@
 <li>Metaphysical distinction from Withers: place as location vs. place as locale. The latter factors in social interactions and practices in its creation.</li>
 </ul>
 <p><b>Part 4</b></p>
-<ulL
+<ul>
 <li>Withers discusses place and the history of science.</li>
 <li>The laboratory is a place in and of itself, with its own cultures and social norms.</li>
 <li>The Enlightenment and place: An encyclopedia uses political geography and its agencies and spaces as two organizational principles. </li>
