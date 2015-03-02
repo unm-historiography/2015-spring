@@ -3,7 +3,7 @@
 
 <blockquote>“This is the West, sir. When the legend becomes fact, print the legend.” </blockquote>
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/363ZAmQEA84" frameborder="0" allowfullscreen></iframe>
+<a href="https://www.youtube.com/watch?v=363ZAmQEA84">Here is a link to the clip, posted on YouTube.</a>
 
 <p>This came to mind in our previous reading from de Certeau and again with Levi-Strauss, especially considering this whole collection of lectures are based upon Levi-Strauss’s ideas on myth. It calls into question the roles of myths in connection to historical truth (a question I pitched in our de Certeau, though it seems more appropriate in this selection).</p>
 
