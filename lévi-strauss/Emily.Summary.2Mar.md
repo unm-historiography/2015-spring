@@ -1,4 +1,4 @@
-####Myth and Science 
+###Myth and Science 
 
 #####Myth is to structuralism as science is to reductionism
 
@@ -6,7 +6,7 @@
 
 -Reductionism- if multiple scientists ‘explain’ at the smallest unit, they will eventually explain enough small units to       explain the whole
     
-######Nature has a limited number of procedures
+#####Nature has a limited number of procedures
 
 -The procedures used at one level are likely to reappear in another
 
@@ -14,13 +14,13 @@
 
 -Science helps us understand myths, because often the same procedures are used in each (the skate and computers)
     
-######The broadening of Science to include the senses 
+#####The broadening of Science to include the senses 
 
 -But science will never be ‘complete’, just as history can never be ‘complete’
 
-####Myth and the Mind
+###Myth and the Mind
 
-######The ‘primitive’ mind
+#####The ‘primitive’ mind
 
 -Utilitarian conception vs. Affective conception (theirs is an inferior kind of thought vs. a different kind of thought)
 
@@ -28,12 +28,12 @@
 
 -Myth does not give man more power over his environment, but he has the illusion of understanding it 
 
-######Homogenization
+#####Homogenization
 
 -True homogenization cannot occur, because if exterior barrios weaken, interior barrios with strengthen
 Myth and History 
 
-######Differences in Expression
+#####Differences in Expression
 
 -History uses documents as its source; Myth uses the spoken word as its source
 
@@ -43,11 +43,11 @@ Myth and History
 
 -The goal for both: help the future to remain faithful to the present and the past
 
-####Myth and Music 
+###Myth and Music 
 
 -Fiction and music grew from the disappearance of myth in culture 
 
-######Understanding Myth and Music 
+#####Understanding Myth and Music 
 
 -Myth must be read and understood holistically, its elements will appear in sequences repeated through out (like a melody in music) 
 
