@@ -2,9 +2,9 @@
 
 #####Myth is to structuralism as science is to reductionism
 
--Structuralism- ‘explaining’ at the highest level means you explain all things below, which is everything
+-*Structuralism*- ‘explaining’ at the highest level means you explain all things below, which is everything
 
--Reductionism- if multiple scientists ‘explain’ at the smallest unit, they will eventually explain enough small units to       explain the whole
+-*Reductionism*- if multiple scientists ‘explain’ at the smallest unit, they will eventually explain enough small units to       explain the whole
     
 #####Nature has a limited number of procedures
 
@@ -22,7 +22,7 @@
 
 #####The ‘primitive’ mind
 
--Utilitarian conception vs. Affective conception (theirs is an inferior kind of thought vs. a different kind of thought)
+-*Utilitarian* conception vs. *Affective* conception (theirs is an inferior kind of thought vs. a different kind of thought)
 
 -Cultures develop different skill sets for their environment dictated by what they need
 
