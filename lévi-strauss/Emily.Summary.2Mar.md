@@ -1,9 +1,10 @@
-#Myth and Science 
+##Myth and Science 
 
--Myth is to structuralism as science is to reductionism
+#Myth is to structuralism as science is to reductionism
 
-  -Structuralism- ‘explaining’ at the highest level means you explain all things below, which is everything
-  -Reductionism- if multiple scientists ‘explain’ at the smallest unit, they will eventually explain enough small units to       explain the whole
+-Structuralism- ‘explaining’ at the highest level means you explain all things below, which is everything
+
+-Reductionism- if multiple scientists ‘explain’ at the smallest unit, they will eventually explain enough small units to       explain the whole
     
 -Nature has a limited number of procedures
 
