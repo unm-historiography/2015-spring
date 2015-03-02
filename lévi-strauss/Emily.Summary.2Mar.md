@@ -2,14 +2,14 @@
 
 -Myth is to structuralism as science is to reductionism
 
-    --Structuralism- ‘explaining’ at the highest level means you explain all things below, which is everything
-    --Reductionism- if multiple scientists ‘explain’ at the smallest unit, they will eventually explain enough small units to       explain the whole
+-Structuralism- ‘explaining’ at the highest level means you explain all things below, which is everything
+-Reductionism- if multiple scientists ‘explain’ at the smallest unit, they will eventually explain enough small units to       explain the whole
     
 -Nature has a limited number of procedures
 
-    --The procedures used at one level are likely to reappear in another
-    --Take for example the similarity between language and genetics; similar rules apply
-    --Science helps us understand myths, because often the same procedures are used in each (the skate and computers)
+-The procedures used at one level are likely to reappear in another
+-Take for example the similarity between language and genetics; similar rules apply
+-Science helps us understand myths, because often the same procedures are used in each (the skate and computers)
     
 -The broadening of Science to include the senses 
 --But science will never be ‘complete’, just as history can never be ‘complete’
