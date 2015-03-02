@@ -1,6 +1,6 @@
-##Myth and Science 
+#Myth and Science 
 
-#Myth is to structuralism as science is to reductionism
+######Myth is to structuralism as science is to reductionism
 
 -Structuralism- ‘explaining’ at the highest level means you explain all things below, which is everything
 
