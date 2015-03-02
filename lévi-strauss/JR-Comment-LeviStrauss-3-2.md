@@ -1,7 +1,7 @@
 <h2>A comment on "Myth and Meaning"</h2>
 <p>Over the course of this reading, I couldn’t help but be reminded of a quote I referenced earlier this semester. From the John Wayne-Jimmy Stewart film “The Man Who Shot Liberty Valance,” the line from the reporter goes:<p>
 
-<blockquite>“This is the West, sir. When the legend becomes fact, print the legend.” </blockquote>
+<blockquote>“This is the West, sir. When the legend becomes fact, print the legend.” </blockquote>
 
 <p>This came to mind in our previous reading from de Certeau and again with Levi-Strauss, especially considering this whole collection of lectures are based upon Levi-Strauss’s ideas on myth. It calls into question the roles of myths in connection to historical truth (a question I pitched in our de Certeau, though it seems more appropriate in this selection).</p>
 
