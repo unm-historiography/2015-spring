@@ -33,6 +33,8 @@
 -True homogenization cannot occur, because if exterior barrios weaken, interior barrios with strengthen
 Myth and History 
 
+###Myth and History
+
 #####Differences in Expression
 
 -History uses documents as its source; Myth uses the spoken word as its source
