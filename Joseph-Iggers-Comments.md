@@ -2,7 +2,7 @@
 
 I thought the turning point's, when history was "professionalized" and again in the 60's when it changed in the wake of WWII, were interesting. 
 
-"New history," is how Igger's terms it. This also made me wonder where History is today in other countries. We critique the west a lot, and rightfully so, but all whilst white washing other ways other countries write and study. People who are educated here and then move back to the Middle East, for example, take this style of Western self-criticism home with them and it is equally as dangerous. Like this book I just read about, the Ottoman empire and "every day life." The author relegates the fact that the rich in the Ottoman empire had slaves, that women were subjugated, and that their slave armies were kidnapped ethnic minorities - to mere footnotes. And instead of talking about Ottoman life, blasts the west for slavery.  
+"New history," is how Igger's terms it. This also made me wonder where History is today in other countries. We critique the west a lot, and rightfully so, but all whilst white washing other ways other countries write and study. People who are educated here and then move back to the Middle East, for example, take this style of Western self-criticism home with them and it is equally as dangerous. Like this book I just read about, the Ottoman empire and "every day life." The author relegates the fact that the rich in the Ottoman empire had slaves, that women were subjugated, and that their slave armies were comrpised of kidnapped ethnic minorities - to mere footnotes. And instead of talking about Ottoman life, blasts the west for slavery.  
 
 ##### Art versus History 
 
