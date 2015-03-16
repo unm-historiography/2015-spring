@@ -21,7 +21,7 @@ I wanted to add another condition. Either history OR literature.
 
 When I went through my collection, I chose literature over history 75% of the time for many reason's. But mainly, because Hugo, Goethe, Faulkner, Hemingway - they were there. 
 
-When I picture Hemingway in Spain, for instance, it is vastly different than when I envision a historian, spending long hours in a university library alongside stale coffee and a ton of equally dry book's trying to research "historical truth."
+When I picture Hemingway in Spain, for instance, it is vastly different than when I envision a historian, spending long hours in a university library alongside stale coffee, and a ton of equally dry book's, trying to research "historical truth."
 
 I'm not saying in order to write a book about something you have to travel there. I'm just saying this is an aspect of historical writing I've seen only once that I know of in Jack Weathorford's Ghenghis Khan and the Modern World. 
 
