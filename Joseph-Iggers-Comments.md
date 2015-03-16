@@ -6,7 +6,7 @@ I thought the turning point's, when history was "professionalized" and again in 
 
 ##### Art versus History 
 
-On page 25, Igger's quotes Ranke, and poses the question of history being more a science or more of a source of culture. But, for me, he fell short of defining the term "empirical science." This is where the reading led me, if I reflected on the term.  
+On page 25, Igger's quotes Ranke, and poses the question of history being more a science or more of a source of culture. But, for me, Igger's went on to fall short on defining the term "empirical science." This is where the reading led me, as I reflected on the term.  
 
 ##### Where the reading led me...
 
