@@ -1,4 +1,4 @@
-<h2>Summary over first two parts of Iggers's "Historiography in the Twentieth Century</h2>
+<h2>Summary over first two parts of Iggers's "Historiography in the Twentieth Century"</h2>
 <p> Essentially, the first part of this book breaks down the history of historiography. It provided a recap from earlier this semester.</p>
 <h5>Part 1: Social science approach</h5>
 <ul>
