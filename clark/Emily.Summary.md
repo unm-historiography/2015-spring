@@ -36,7 +36,7 @@
 
 -History has the potential to be science (p 32)
 
-**Arthur Danto**
+**Arthur Danto (p 34)**
 
 -History shouldn’t be degraded simply because perfect knowledge cannot be obtained (p 35)
 
