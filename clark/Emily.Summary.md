@@ -3,16 +3,23 @@
 **Traditional Historiography (p 9)**
 
 -History can only be obtained through documents. If there are no documents, there is no history (p 10)
+
 -Goal: remove the self; Result: objectivity
+
 -Interpretations must grow out of the facts, and conversely, interpretations should not be substantiated by facts. If the historian starts with theories or arguments before diving into research, then the sources cannot accurately speak for themselves (p 15)
+
 -Modern questions cannot be asked of old material; only questions that people of the past would have asked can be applied to their documents (p 19)
 
 **Critics of Traditional Historiography (p 18)**
 
 -“The past is not an objet of sense perception that can be experienced empirically in the present” (p 18)
+
 -History is not the retrieval of the past, but an inference of the past (p 19)
+
 -The past is understood differently from the ways in which it was experienced (p 19)
+
 -Modern questions *should* be asked of old material (p 20)
+
 -Historians aren’t judges, facts are not independent of interpretations, and the meaning of events can change over time (p 21)
 
 **Maybe We Should Go Back to Tradition (p 23)**
