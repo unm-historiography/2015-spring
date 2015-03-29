@@ -35,3 +35,7 @@ But essentially I think I sort of caught on to the spirit of the article.
 Wither's didn't get the memo, however, that "an intellectual says a simple thing in a hard way. An artist says a hard thing in a simple way." The humanities are humanities, after all, because there is an art to them.  
 
 I mean, "like space, its regular epistemic dancing partner in geographical ubiquity and metaphysical imprecision…" (638) Come on, man. 
+
+
+
+! [IJ] (http://www.oafe.net/rustin/art/ij4csx01.jpg)
