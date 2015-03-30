@@ -7,7 +7,7 @@ Clark is on the defense against claims that literature>history is a conservative
 
 Clark is able to defend against these claims. For example, she dispels this criticism surrounding Foucault by illustrating that Foucault's focus on discontinuities in history is derived from Marx. 
 
-Clark really succeeds at introducing and dispelling these attack's on the effectiveness of literature, literary theory, and therefore the "linguist turn." And I very much agree that a shift towards literature, rather than towards marxism, fits into a conservative ideology. 
+Clark really succeeds at introducing and dispelling these attack's on the effectiveness of literature, literary theory, and therefore the "linguist turn." 
 
 ##### Literature v History 
 
