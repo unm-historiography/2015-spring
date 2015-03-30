@@ -35,4 +35,4 @@ I don't think literature and interpretative anthropology are mutually exclusive.
 
 The study's current is taking it somewhere for sure but the question is where. 
 
-A social science, anthropology, literature? Or it will continue to be history, becoming its subject altogether, vanishing away into a blurry past in the graveyard of philosophy. 
+A social science, anthropology, literature? Or it will continue to be history, becoming its subject altogether, vanishing away into a blurry past. 
