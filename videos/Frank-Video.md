@@ -1,0 +1,5 @@
+#The Final Video
+
+So, I am working on a research paper for my Old Russia history class and one of the things that I have found really interesting in my research is the different ways historians have written on my topic. I'm working on an event known as the Raskol, which was a seventeenth-century schism in the Russian Orthodox Church, motivated in part by liturgical reforms instituted by the Patriarch Nikon. Historians have approached this topic from a lot of different angles, with the clearest distinctions coming from soviet historians writing during the mid-twentieth century. I think that because we all live in the US and are exposed to primarily Anglo-American historical research it’s easy to pass over historiographical differences because they are so subtle in our own institutions. However, in researching such an irrelevant topic, at least to US historians, the prominent historiographical differences show up more clearly. 
+
+I envison my video telling the ***stories*** of the Raskol from the varying historiographical positions that work on this event.
