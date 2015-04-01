@@ -1,0 +1,3 @@
+For the video I would like to answer one of two things, what should history at the university look like? or what use is history? For the question about what history should look like at the university I would like to create a Historiography 101 class that shows the information that we have learned in a condensed way, using Clark’s book as the main focus. For this idea I would create a schedule of readings and assignment for the 101 students. 
+
+As for the use question I would like to argue that the main use of history is in the practice, the useful aspects of critical analysis. Historians are able to reach a higher level of critical thought and analysis that can not only be useful in history but many other aspects of life.
