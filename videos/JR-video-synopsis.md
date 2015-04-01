@@ -5,5 +5,5 @@
 <li>A quick recap discussing some of the major conflicts throughout history and how they were examined</li>
 <li>Waterloo. One war historian who comes to mind, John Keegan, apparently sees this battle as the major shift in conflift. I want to examine why.</li>
 <li>Total war, and how historiography changed. Based on what we've read and discussed, both World Wars radically changed the way people approach history in general, not just war history.</li>
-<li>Concluding with the 20th century being among the most violent in history. Here, I plan to discuss why studying war history is relevant.<li>
+<li>Concluding with the 20th century being among the most violent in history. Here, I plan to discuss why studying war history is relevant.</li>
 </ul>
