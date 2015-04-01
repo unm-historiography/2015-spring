@@ -5,5 +5,4 @@ I am just beginning to write my honors thesis on prostitution in 18th & 19th cen
 #####Some Potential Sources
 
 -“The Maiden Tribute”- Series of newspaper articles discussing prostitution in London
-
 - The Yorkshire Ripper – modern day example of how history was incorporated into current events to ‘sensationalize’ the topic
