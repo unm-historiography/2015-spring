@@ -1,0 +1,15 @@
+####The Presentation of Text
+
+For a book devoted to the visualization of humanities, I actually found the design of the book rather difficult. The chapter introduction pages and the margin arrows in particular, but also the size of the book made me feel like I was about to read a children’s picture book, which oddly enough distracted me in the beginning (and reminds me of our class discussion on how the presentation of text effects our perception of it). Which leads me into my first point, which is that *the presentation of text needs to be reconfigured for today’s age*. Reformatting the ways in which information is presented has happened many times over (from oral traditions to writing, and from writing to typing) and *changing its form yet again shouldn’t be seen as detracting from it’s content*. But, sadly, I’m a hypocrite, because did I not just say that I was distracted by the size of this book? Distracted because I’m used to academic books being a certain size, and of a certain thickness, and of a certain format, and anything other than this distracts me (I almost wonder if the author’s did this in purpose). This is the response that somehow needs to be addressed if digital humanities could ever succeed. 
+
+####Too Much Information?
+
+Simulating past times and building on the GPS narration of places, these are but two examples of how the humanities could be visualized. Indeed, this all sounds very exciting, but in some ways also terrifying. To be honest, *I don’t necessarily always want to be tapped into a constant stream of information*. When I’m traveling, I would rather be able to hear the sounds of the city instead of being fed a flow of information through my headphones. 
+
+*There is such a thing as too much information*. Historians are already expected to read a great deal (sometimes impossible) amount of material, and as time progresses, these expectations increase because the amount of information available increases. If a computer can synthesize information and look for patterns from a massive amount of data, does this make them better historians? Maybe we should be more afraid of losing our jobs to computers than to post-modernists. 
+
+####Accessibility of Information
+
+*Information needs to be more accessible*. Instead of constraining it into the boundaries traditionally imposed, it needs to be opened for wider audiences using tools we already have. I was reminded of an excavation I recently learned about, Çatalhöyük in Turkey, were the entire excavation project was posted on the Internet. The project director, Ian Hodder, had all his excavators keep online journals about their work, and viewers were invited to put fourth their own ideas on the findings. This serves as a perfect example to the kind of approach that *Digital Humanities* suggests. 
+
+Perhaps the reason we (the class) can no longer answer to what use history has is because we haven’t actually put it to use yet. This isn’t to say that is has no use, but rather that history and the humanities are not being pushed to their fullest potential, or utility.
