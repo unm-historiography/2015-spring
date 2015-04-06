@@ -1,0 +1,7 @@
+I really enjoyed the first half of digital humanities. I thought it touched on a lot of the ideas about combining new technologies with academic progress. I felt like it really helped to show the importance of adaptation. Being able to use the different media available to us as tools for teaching and learning is going to be a huge advantage for making education widespread in the future. I also thought it was super easy to read which at this point in the semester is pretty fantastic. 
+
+I had one huge gripe that is kinda silly but they talked about shards of pottery and that is totally the incorrect word. In archaeology we call glass shards and pottery sherds.
+
+Anyway I thought that it was great that they emphasized the idea of collaboration. I think that is really the future. There is so much to learn and to know about histories ect. That I think we have to be able to starting doing more collaborative works. I thought this reading fit into this class well especially since we are going to be making short films for our final projects. 
+
+Also one last interesting comment. I thought it was really interesting that a lot of the class abbreviated the book to DH. I used to be active on some military spouse forums and a lot of the women use DH to stand for dear husband and it made me think of context. Digital integration is really important but it can lead to misunderstandings based on differences in context. 
