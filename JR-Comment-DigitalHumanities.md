@@ -1,7 +1,7 @@
 <h2>Digital Humanities: The Present and the Future</h2>
 <p>On the surface, the digital humanities is a concept I can get behind … anything that takes us away from mindless cat pictures and listicles on botched celebrity plastic surgery. The authors in this book are 100 percent correct that culture has shifted toward the screen for information gathering efforts. </p>
 <h4>However…</h4>
-<p>I remain suspect over one key element thus far not fully addressed in the book: logistics. With the number and variety of technical skills required to produce content in these digital humanities, even a single project requires numerous people with different skill sets.</p>
+<p>I remain suspect over one key element thus far not fully addressed in the book: logistics. While Pages 50-52 do mention this, I believe it is most definitely worth mentioning. With the number and variety of technical skills required to produce content in these digital humanities, even a single project requires numerous people with different skill sets.</p>
 <p>This book does refer to this concern:</p>
 <blockquote>“One caveat is worth noting. The positive demand for expanded skill-sets could have profoundly negative effects on scholarship if it becomes the academic equivalent of a neo-liberal speedup in which ever more quantitative metrics are used to push ‘education workers’ into acquiring technological skills without commensurate pay, skills with they are then held accountable for, both within and outside of tenure tracks” (Pg 15).</blockquote>
 <p>A pretty big caveat, if you ask me.<p>
