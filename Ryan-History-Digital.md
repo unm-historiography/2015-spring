@@ -1,0 +1,3 @@
+Are we leading to a "set perspective" on events in history with the emergence of search engines? We spend so much time in class talking about truth seeking and credibility so why not hold the digital age just as accountable?
+
+Does it change history? Not necessarily, historians will always have the same goals in my opinion; the manner in which history is "done" will always change. I hold by what I always say in class, as I agree with Evans, we will always bash the former Historians work in favor of the former. Therefore there can't really be a set way to do history, so as with all time it will adapt to the digital age with the same goals.
