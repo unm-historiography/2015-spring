@@ -20,7 +20,7 @@ expensive. I think that humanities can find a happy middle. Remain textual for t
 like me, prefer it. And move to digital forms for those who are technologically advanced. This would require more work on
 authors and composers of these texts though, but I think that it would have the best out come in the long run. Like Burdick mentioned,
 the goal is to educated the population. What better way than to make accomadations for the whole? </p>
-<p> Now to talk about the books appearance. I did not like it.</p>
+<p> Now to talk about the book's appearance. I did not like it.</p>
 <p> I mentioned earlier that I enojyed the way books felt and looked. I did not enjoy this one. It felt to me like more of a
 "coffee table" book than library, educational book. I might have enjoyed it more if it weren't such an odd size with odd text.
 Also, the bolded words throughout the text distracted me. It were as if Burdick et al. had already pointed out the most
