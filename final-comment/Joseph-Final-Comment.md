@@ -23,3 +23,5 @@ As of now, I think there are 8 upper division history courses required. If you t
 The only thing I think I'm sure of, as far as tweeking, is two fold. 
 1) I don't agree with changing the lower division course. I think getting into micro before macro is getting the cart before the horse. 
 2) I do think that this class, being the last history class in my path, was getting the horse before the cart. I think this class would be better served as a pre-req for upper division humanities. I also wish there was a class like this in literature, econ, etc. 
+
+PS: would also like to say as to avoid 'getting it twisted', in relation my last comment...my political qualms with the last book weren’t large. I am not a climate change denier, nor a proponent of unfettered capitalism. Just that the authors made it seem like if you weren’t with their exact line of thought than you were the enemy. That’s where i was coming from with my comment about the political bias of the book. 
