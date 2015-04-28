@@ -1,1 +1,1 @@
-I would like to duplicate a work that from a previous project. The historiography of terrorism and how historians have written about what terrorism is. Lacking a definition that everyone agrees on is troubling, but it is telling about the difficulties in identifying terrorism. 
+I would like to duplicate a work that is from a previous project. The historiography of terrorism and how historians have written about what terrorism is. Lacking a definition that everyone agrees on is troubling, but it is telling about the difficulties in identifying terrorism. 
