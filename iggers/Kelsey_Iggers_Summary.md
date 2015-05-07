@@ -1,5 +1,5 @@
 As detailed in the first half of Iggers, the main differences between historians of the 19th century and mythical historians
-is that 19th century historians recognize the science in history. This main differences sets the ground work for historians 
+is that 19th century historians recognize the science in history. This main difference sets the ground work for historians 
 such as Ranke to detail his "history as science" philosophy.
 There are similarities however, similarties which still continue to be true in 20th century history.
 1. They accepted a correspondence theory of truth. This theory portrays people and events as actually occurring in history.
