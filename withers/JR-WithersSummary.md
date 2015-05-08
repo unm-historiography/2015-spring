@@ -1,4 +1,4 @@
-<h2>Withers summary</h2><
+<h2>Withers summary</h2>
 <p><b>Part 1 and 2</b></p>
 <ul>
 <li>Discussion over the importance of space</li>
