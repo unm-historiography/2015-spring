@@ -10,4 +10,13 @@
 <li>Americans at this time tended to see themselves as a classless society and without ideological conflicts (the Civil War notwithstanding), and this impacted their historical approaches in a more scientific way.</li>
 </ul>
 <h5>Part 2: Challenges of social science approach</h5>
-<p>Coming after Wednesday's class.</p>
+<ul>
+<li>Focuses heavily on describing the <i>Anneles</i> school.</li>
+<ul>
+<li>It's an opposing force to the Ranke model, focuses on everyday person.</li>
+<li>It's not lineary, and it abandons Western superiority ideal and causality focus.</li>
+<li>Sources used: symbols, language, artifacts, anthropological elements.</li>
+</ul>
+<li>Less politically driven, moves away from Marxist linear progress ideas.</li>
+<li>Iggers quoting Ranke: History has replaces philosophy</li>
+<ul>
