@@ -16,7 +16,7 @@
 <p>It can be argued this also served as a contributing factor to Japan’s attack on Pearl Harbor and thus World War II in the Pacific Theater, but Mahan’s longue-durée demonstrates the effective those lessons of the British navy – militarily speaking that is.</p>
 
 <h4>Use of longue-durée</h4>
-<b>We have discussed numerous times this semester about using history to predict the future, so I won’t go into detail there.</p>
+<p>We have discussed numerous times this semester about using history to predict the future, so I won’t go into detail there.</p>
 
 <p>Yet, as the Mahan example showed, history can go a long way in formulating policy moving forward. I recognize the criticism that more recent phenomena means replicating past policy will not lead to the same results, but there is much to be learned from those lessons of the past. </p>
 
