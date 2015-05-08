@@ -22,5 +22,6 @@
 <li>The driver tried to apply his brakes, which were faulty. If the driver deliberately tried to kill the pedestrian with his car because the driver is racist, he would not have applied the brakes. He instead would have hit the gas.</li>
 
 <li>Also, how can a blind corner be racist? The construction team that built the infrastructure could not have deliberately made the corner blind with the intent to have a white man run down a black man. Even if that was the plan in construction, there is no way to guarantee the race of either individual, or guarantee an accident would even occur. That is the nature of an accident.</li>
+</ul>
 
 <p>Do accidents play a part in events? Of course they do. How relevant are they? That depends on which historian you ask. Clearly Carr does not believe they matter because, as Evans mentions, they are uncontrollable and thus not relevant to the causation. It’s an interesting way to look at it.</p>
