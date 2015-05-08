@@ -1,0 +1,6 @@
+
+**Iggers: Second Half Summary**
+
+George Iggers addressed narratives and their importance when talking about history. He notes that microhistories are important to represent the underrepresented groups of people in history. Iggers thinks that following a sort of scientific methodology would be a good guideline for historians to get closer to truth-telling history. He explains that macrohistories take a more social science approach to their methods while microhistories are people’s narratives. He also explains that political history of many, skips over the “little people” who can make for an interesting and important part of history. 
+
+Iggers touches on the Linguistic turn and how historians are limited by the language they know, according to post-modernists. Questioning language and if truth can be derived through language then questions whether or not history can be truly objective. Therefore some (few) wonder if history is being phased out of being an academic discipline since different truths can be told if they are told in different languages. Iggers argues though, that social and linguistic structures need one another so they can work together to understand historical concepts. Overall, Iggers thinks that history needs to be cooperative with political and narrative approaches.
