@@ -15,11 +15,12 @@ Nevertheless, I enjoyed this class.</P>
 Which is why I like history. History is concrete, or at least I thought so...until I took this class...</p>
 <p><b>How I think the history curriculum should be changed<b></p>
 <p>I think that the history curriculum should be changed to be less date and name giving and more narrative based. We discussed 
-earlier that history is taking a turn away from narratives. I like history in narrative forms. It makes it real and exciting to me.
+earlier that history is taking a turn away from narratives. I like history in narrative forms. It makes it real and exciting.
 If history was made to be more exciting I feel that more people would be interested in learning it. With this being said though,
-we also discussed how historians have a problem with those in other fields not giving history creditability. Perhaps if historians 
+we also discussed how historians have a problem with those in other fields not giving history creditability.Narratives
+can sometimes make history seem more like story telling and less like a social science. Perhaps if historians 
 and history classes made the uses of history more apparent, more people would find it creditable. We also talked about having historians
 take classes in other fields to be more well-rounded (and job worthy). I do not agree with this. Bio-chem majors don't have to take
 extra classes in history to make them well-rounded, so why should we? There will always be places for historians as there will always
-be places for bio-chem majors. There are certain classes that a relevant to someone's future job and classes that just aren't. 
-Historians most likely are not trying to get into fields that deal with irrelevant information to their focus. 
+be places for bio-chem majors. There are certain classes that are relevant to someone's future and certain classes that just aren't. 
+Historians most likely are not trying to get into fields that deal with irrelevant information to their future jobs. 
